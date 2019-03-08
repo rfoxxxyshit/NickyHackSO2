@@ -18,6 +18,6 @@ Best hack for Standoff 2 ever
 
 
 # Contacts
-Email: maximkekus@gmail.com
-VK: vk.com/reloadingfox
-Telegram: @reloadingfoxofficial
+• Email: maximkekus@gmail.com
+• VK: vk.com/reloadingfox
+• Telegram: @reloadingfoxofficial
