@@ -1,6 +1,6 @@
 # NickyHackSO2
 Best hack for Standoff 2 ever
-
+Use it for own risk. 
 
 # Download
 Using Browser: 
